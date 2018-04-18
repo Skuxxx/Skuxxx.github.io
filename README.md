@@ -1,1 +1,1 @@
-# Website : Skuxxx.github.io
+# Skuxxx.github.io
